@@ -15,8 +15,8 @@
 - Teams or projects that value clean, efficient code and innovation
 
 ### 📫 How to reach me:
-- **Email**: awkwardlyprofessional@example.com
-- **LinkedIn**: [linkedin.com/in/awkwardlyprofessional](https://linkedin.com/in/awkwardlyprofessional)
+- **Email**: arijitvish25@gmail.com
+- **LinkedIn**: [linkedin.com/in/arjit-vishwakarma-513685251/](https://linkedin.com/in/arjit-vishwakarma-513685251/)
 
 ### 😄 Pronouns:
 - He/Him
